@@ -14,12 +14,6 @@
 <p align="center">✦ I'm a multishipper so I'll probably drink any kind of tea unless the ship is hella problematic.</p>
 <p align="center">✦ ENGLISH IS NOT MY MOTHER LANGUAGE I will make spelling mistakes.</p>
 
-### <p align="center">IWC !! <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/0d4e7dd5-409b-48e6-b9c0-e7d6386fb274" />
-</p>
-<p align="center">✦ Die of Death, Forsaken, Dandy's World, Hazbin Hotel/Helluva Boss;</p>
-<p align="center">✦ You can like these and still interact with me it's not that deep man. I just rather avoid these topics because they bring bad memories to me. So yeah just don't shove that game/show down my throat and we're good!
-</p>
-
 ### <p align="center">DNI !! <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/e9e7dfa8-e1ab-4c17-8161-4683c6928b32" />
 </p>
 <p align="center">✦ Basic DNI criteria</p>
