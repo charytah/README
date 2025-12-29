@@ -17,7 +17,7 @@
 ### <p align="center">DNI !! <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/e9e7dfa8-e1ab-4c17-8161-4683c6928b32" />
 </p>
 <p align="center">✦ Basic DNI criteria</p>
-<p align="center">✦ 14yo and younger. I prefer to be friends with older people!</p>
+<p align="center">✦ 14yo and younger (unless I interact first, + if we're already friends then you're good!)</p>
 <p align="center">✦ You're interacting exclusively for romantic purposes. I do NOT need that right now.</p>
 
 ##
