@@ -27,6 +27,9 @@
 
 Art credits [1](https://x.com/sillyrecluse/status/1975586224451813687) [2](https://x.com/astertude/status/1976440894585979386)
 
+<p align="center">Also . Have my kinlist in case you want to know what you're dealing with. Mwahaha. </p>
+<p align="center"><img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/144f6a69-1034-4bd4-8c69-200108a0e315" />
+
 ![m2](https://github.com/user-attachments/assets/f74e0122-8462-436e-b2a1-c3e4a1437020) 
 ![g66](https://github.com/user-attachments/assets/4bd8d6f9-ba2e-4f8a-a38d-d38d461ed710)
 ![d95](https://github.com/user-attachments/assets/e7b2f09d-03a3-4916-b97d-352765d81a20)
